@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheworstKami
-- 👀 I’m interested in making
+- 👀 I’m interested in making friends
 - 🌱 I’m currently learning art
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on discord @ The worst Kami#0302
